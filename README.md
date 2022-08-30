@@ -1,2 +1,2 @@
-# ru-ico
+# Russia (Icon Pack)
 Russia (Icon Pack)
